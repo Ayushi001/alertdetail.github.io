@@ -1,0 +1,1 @@
+# alertdetail.github.io
